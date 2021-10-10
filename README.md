@@ -9,3 +9,4 @@
 - [21/10/05](https://secretive-bath-afa.notion.site/2021-10-05-3bb35956b81043d197f955c47d534077)
 - [21/10/06](https://secretive-bath-afa.notion.site/2021-10-06-bd74b4ccd9544e31baff69766b7398ab)
 - [21/10/07](https://secretive-bath-afa.notion.site/2021-10-07-5a68befdec2541c0a8c3557c68067eac)
+- [21/10/10](https://secretive-bath-afa.notion.site/2021-10-10-43e9e4ad10c345899724c3bc2519fe38)
